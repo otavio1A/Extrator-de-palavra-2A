@@ -1,0 +1,1 @@
+# Extrator-de-palavra-2A
